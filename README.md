@@ -1,4 +1,4 @@
-- 👏🏻 Hi, I’m Sidi
+- 👏🏻 Hi, I’m Sigi
 - 👀 I’m interested in baking
 - 🌱 I’m currently learning as much as possible 
 - 💞️ I’m looking to collaborate on sourdough baking tips
